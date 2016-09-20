@@ -1,3 +1,3 @@
 # Test03
 
-няма да се предам :) !
+Never back down! :)
